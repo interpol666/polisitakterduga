@@ -1,0 +1,2 @@
+# polisitakterduga
+Jangan dilihat guys
